@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ogechukwu02
-- 👀 I’m interested in making new friends who are professionals in thier place of work
+- 👀 I’m interested in making new friends who are professionals in their place of work
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate with so many people
 
