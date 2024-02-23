@@ -1,6 +1,7 @@
-- 👋 Hi, I’m @Ogechukwu02
+- 👋 Hi, I’m @MaudlineOgechukwu
 - 👀 I’m interested in making new friends who are professionals in their place of work
 - 🌱 I’m currently learning coding
+- You're also free to teach me as i am open to learning
 - 💞️ I’m looking to collaborate with so many people
 
 <!---
